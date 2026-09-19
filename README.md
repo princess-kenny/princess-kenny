@@ -6,7 +6,7 @@
 - hetalia, full metal jacket, south park, slow damage, dramatical murder, hookah haze, mob psycho, ohshc, guildmate next door, etc. etc.
 
 🦴    ꒰𓏬͡𖹭 : **BEFORE YOU INT**
-- wip
+- im borderline, bipolar, and struggle with psychosis and a load of other issues . i may need to step back at random ! im also constantly in situations where i fall off the face of the earth
 
 🪽    ꒰𓏬͡𖹭 : **DO NOT INT**
 - wip
